@@ -3,8 +3,8 @@
 Perkenalkan nama saya **Ali Ihsan Kamil**.\
 Saya seorang **Mahasiswa** di [Politeknik TEDC](https://home.poltektedc.ac.id/).\
 Saya merupakan Ketua Umum Lembaga Dakwah Kampus IKMI di Politeknik TEDC periode 2022/2023.\
-Saya juga memiliki sertifikasi Microsoft [Microsoft Office Specialist: Excel (Office 2016)](https://www.credly.com/badges/271b5d60-94f4-48a7-8ed6-ab52e728e23b/linked_in_profile) sejak 2022.\
-Saya siswa Bangkit Akademi - Angkatan 2, Kelompok Mobile Development.
+Saya juga memiliki sertifikasi [Microsoft Office Specialist: Excel (Office 2016)](https://www.credly.com/badges/271b5d60-94f4-48a7-8ed6-ab52e728e23b/linked_in_profile) sejak 2022.\
+Saya siswa Bangkit Akademi - Angkatan 2, Kelompok Mobile Development.\
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/ali-ihsan-kamil-52aa2a236/)ku ya.
 
 <p align="left">
